@@ -1,4 +1,4 @@
-
+Enhance your TunnelBear experience with TunnelBear exclusive Extension: double-VPN & streaming-optimization, the #1 extension. Includes double-VPN and streaming-optimization for a
 
 
 
